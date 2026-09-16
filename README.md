@@ -7,19 +7,9 @@
 
 ### ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹  
 
-### $${\color{#62069c}hello ! \space please \space ask \space pronouns/name | \space my \space names: \space 8 \space or \space anonm/anonymous}$$ 
+🌐 ⸝⸝ welcome !! ° ᡣ𐭩 . ° . <br>
+^..^ ➢ ﹔anon or eight ୭ ˚. ᵎᵎ 💾 ᶻ 𝗓 𐰁 ⊹₊ ⋆ <br>
+╰ ⁑⁑ Them // Xe ┆๋࣭ ⭑ 𓂃 ࣪˖ ִֶָ  🔍 .., <br>
+. ݁₊ ⊹ . ݁˖ . ݁ ***A***dult . ୨୧ ⭑.ᐟ E-INFP-T ★ ˙ᵕ˙ !? <br>
+___ ★₊˚﹟’IWEC IAYOR’ ! <br>
 
-***might update***
-
-fandoms: <br>
-forsaken <br>
-SFAWTDE <br>
-no more time <br>
-minecraft smps (ı dont wanna say wich ones) <br>
-Gacha (lunime games)<br>
-minecraft/Roblox myths<br>
-Roblox Piggy<br>
-creepy pasta<br>
-mlp<br>
-mha<br>
-fnaf<br>
