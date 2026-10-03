@@ -1,10 +1,4 @@
-
-
-
-
-
-
-
+<img src="https://64.media.tumblr.com/0a7affb774fd4abee9e89bdbd4b315ff/9251fd2ab25c32cb-1f/s250x400/ab56b486d1a9af9213386992f03d39f804bb5be7.gifv" style=" width: 20px"> 4n0nym0us1nd1v1du4l early 20's only site desing inspos ok!
 
 " what rhymes with cruelty? humanity there's still so many secrets to find "
 ---
