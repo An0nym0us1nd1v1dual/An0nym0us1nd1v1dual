@@ -6,6 +6,14 @@
   <p>hello ! ı just wanted to say ı'm using pony town lesser (if ı do play mostly stay Afk/S-Afk or talk to close trusted friends or comfort friends) for several problems mentally... and ı don't want to be part of any problems in the game anymore... if you really wanna talk to me W2İ or send messages from any of my social accounts Probably you can see me on discord or in minecraft if you're gonna interact with me interact on discord interact with caution ofc ı have tendency to get hostile towards strangers thats too straight forward or like directly and fastly does everything </p>
 </details>
 
+<details>
+<summary> DNI </summary>
+  <p> Pro-Contact Radq , Harmful-IDs , assholes , smartass ppl , vent/ranters , discourse , no-thinkers , manipulators (ı'm not stupid you idiots) , or ppl who try to control others change opinions and stuff gtfo of my sight </p>
+  </details>
 
+<details>
+<summary> IWEC </summary>
+  <p> doc makers (if you add me into one cause ı'm friends with a probalmetic ppl in your opinion fuck off) , sensetive people , turkish ppl (my language also) , don't ask for opinions or stuff ı can't help much </p>
+  </details>
 
-
+  on top of these... ı don't really care anyone come to talk just know one day we will be strangers again...
