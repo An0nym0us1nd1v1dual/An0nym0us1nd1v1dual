@@ -8,7 +8,7 @@
 
 <details>
 <summary> DNI </summary>
-  <p> Pro-Contact Radq , Harmful-IDs , assholes , smartass ppl , vent/ranters , discourse , no-thinkers , manipulators (ı'm not stupid you idiots) , or ppl who try to control others change opinions and stuff gtfo of my sight </p>
+  <p> Pro-Contact Radq (or basically forced realtionships) , Harmful-IDs , assholes , smartass ppl , vent/ranters , discourse , no-thinkers , manipulators (ı'm not stupid you idiots) , or ppl who try to control others change opinions and stuff gtfo of my sight </p>
   </details>
 
 <details>
