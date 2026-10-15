@@ -13,7 +13,7 @@
 
 <details>
 <summary> IWEC </summary>
-  <p> doc makers (if you add me into one cause ı'm friends with a probalmetic ppl in your opinion fuck off) , sensetive people , turkish ppl (my language also) , don't ask for opinions or stuff ı can't help much </p>
+  <p> doc makers (if you add me into one cause ı'm friends with a probalmetic ppl in your opinion fuck off) , sensetive people , don't ask for opinions or stuff ı can't help much </p>
   </details>
 
   on top of these... ı don't really care anyone come to talk just know one day we will be strangers again...
