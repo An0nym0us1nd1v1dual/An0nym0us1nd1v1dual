@@ -7,8 +7,8 @@
 </details>
 
 <details>
-<summary> DNI </summary>
-  <p> Pro-Contact Radq (or basically forced realtionships) , Harmful-IDs , assholes , smartass ppl , vent/ranters , discourse , no-thinkers , manipulators (ı'm not stupid you idiots) , or ppl who try to control others change opinions and stuff gtfo of my sight </p>
+<summary> (not really) DNI </summary>
+  <p> ı'm tired of people just act cautious and like normal fucking person would not like monkeys one's opinions don't bother you and fucking respect others ıgaf anymore </p>
   </details>
 
 <details>
